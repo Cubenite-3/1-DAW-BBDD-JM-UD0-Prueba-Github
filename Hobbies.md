@@ -1,0 +1,4 @@
+* gaming
+* anime
+* paseos
+* Coches
